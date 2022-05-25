@@ -1,1 +1,1 @@
-miércoles
+miércoles, jueves, viernes
